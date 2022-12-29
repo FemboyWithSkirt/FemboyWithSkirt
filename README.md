@@ -1,4 +1,2 @@
-- 🥱 hi, im very thic femboy gamer
-- 🥶 i really enjoy hvhing in cunter blox and begging for Synapse X
-- 💀 please buy me synapse
-- 🧠 dani.#3839
+
+
